@@ -16,7 +16,7 @@ At **[Salvik India](https://www.salvik.in/)**, every **Ganesh marble murti** is 
 - **Temple Ganesh Idols** – Perfect for home temples and spiritual centers
 
 Explore the full collection here:  
- [https://www.salvik.in/collections/ganesh-marble-murti](https://www.salvik.in/collections/marble-ganesh-ji-statue)
+ [salvik collections/ganesh-marble-murti](https://www.salvik.in/collections/marble-ganesh-ji-statue/)
 
 ## Ideal for Gifting and Decor
 Whether for a **housewarming**, **Diwali gift**, or **temple installation**, a marble Ganesh idol makes for a meaningful and spiritual present. It’s not just a decor piece — it’s a sacred blessing
