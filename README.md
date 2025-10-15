@@ -1,4 +1,4 @@
-# 🕉️ Ganesh Marble Murti – Handcrafted Elegance from Jaipur
+#  Ganesh Marble Murti – Handcrafted Elegance from Jaipur
 
 ## Introduction
 Lord Ganesha, known as the remover of obstacles and the symbol of wisdom, is revered in every Indian household. A beautifully carved **Ganesh marble murti** brings peace, positivity, and devotion into any space — whether it’s a home temple or a workplace.
